@@ -7,7 +7,7 @@ Website coming soon!
 
 - 🔭 I’m currently working on a project with friends!
 - 🌱 I’m currently learning everything 🤣
-- 🥅 2020 Goals: Contribute more to Open Source projects
+- 🥅 2021 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: I love to watch NBA
 
 ### Connect with me:
